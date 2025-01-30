@@ -15,7 +15,7 @@
 
 - Currently in the second year of my bachelor's degree
 - Learning at HEIG-VD in Yverdon-les-Bains
-- Cybersecurity
+- Cybersecurity student
 
 <br>
 
